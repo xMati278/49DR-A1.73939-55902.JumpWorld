@@ -1,1 +1,1 @@
-Tutaj funkcjonalności rozpisane:
+Tutaj funkcjonalności rozpisane+ link do pobrania calosci :
