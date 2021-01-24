@@ -1,1 +1,1 @@
-"# 49DR-A1.73939-55902.JumpWorld" 
+Tutaj funkcjonalności rozpisane:
